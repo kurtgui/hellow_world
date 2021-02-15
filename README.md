@@ -2,4 +2,4 @@
 
 hi human, 
 
-how is everying down the earth?
+how is everying down the earth.
